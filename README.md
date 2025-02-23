@@ -1,1 +1,7 @@
 # islam
+
+TELEGRAMDAKİ İLK İSLAMİ KELİME BULMA OYUNUDUR
+
+OYUN HAKKINDA BİLGİ ALMAK İÇİN 
+
+T.ME/iletisimROBOT a yazınız
